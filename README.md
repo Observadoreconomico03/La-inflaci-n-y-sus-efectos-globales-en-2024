@@ -1,1 +1,2 @@
 # La-inflaci-n-y-sus-efectos-globales-en-2024
+La inflación se ha vuelto un tema de alto impacto tanto para economías avanzadas como emergentes. Desde el aumento de tasas de interés en EE. UU. hasta la volatilidad en países como Argentina, el alza de precios afecta la estabilidad económica mundial. Factores como la pandemia y la crisis energética siguen presionando los mercados, lo que muestra la interconexión económica y la diversidad de impactos que enfrenta cada país.
